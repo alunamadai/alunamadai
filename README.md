@@ -7,7 +7,7 @@
 - 🌷 I use this space for my organization and to share my projects
 
 
-### Você pode entrar em contato comigo 📫
+### You can contact me 📫
 
 madai.salazar@escola.pr.gov.br
 
